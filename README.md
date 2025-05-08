@@ -16,8 +16,6 @@
 
 ![ezgif-7b9ece34d26eb0](https://github.com/user-attachments/assets/85e8fca9-d93f-4a12-a00a-44c82720d36a)
 
-![ezgif-7b9ece34d26eb0](https://github.com/user-attachments/assets/0b61def4-d448-45f2-bfa6-c0409145461e)
-
 ![ezgif-701bc84b21375a](https://github.com/user-attachments/assets/3d171d74-4894-47a8-b6d2-5d6e1a3d110b)
 
 ![ezgif-787ebbb8b854a6](https://github.com/user-attachments/assets/b0f3abd0-f10c-4a47-a121-a5757b66e6cf)
